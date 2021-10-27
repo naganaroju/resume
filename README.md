@@ -41,6 +41,8 @@
 
 Experience :
 Akshara concept high school. Science Teacher
+
 Balavikas em school . Science Teacher
-Sai Teja em school.science Teacher
+
+Sai Teja em school.science Teacher.
 
