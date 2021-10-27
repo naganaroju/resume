@@ -35,5 +35,9 @@
 - cognos <br>
 - python<br>
 ###***Goals***
--I want to become a  govt job holer
+-I want to become a  job holder
+Experience :
+Akshara concept high school. Science Teacher
+Balavikas em school . Science Teacher
+Sai Teja em school.science Teacher
 
